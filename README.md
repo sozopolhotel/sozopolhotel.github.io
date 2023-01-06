@@ -1,0 +1,1 @@
+# sozopolhotel.github.io
